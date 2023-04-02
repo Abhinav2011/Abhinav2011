@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **abhi32eee@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nR8X9qlSBhpvS5rqxegZvJL5m_KkkHMU/view?usp=sharing](https://drive.google.com/file/d/1nR8X9qlSBhpvS5rqxegZvJL5m_KkkHMU/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nR8X9qlSBhpvS5rqxegZvJL5m_KkkHMU/view?usp=sharing](https://drive.google.com/file/d/1ahsxf-lCTFqqF5amadW83EXtsNSWt8G5/view?usp=sharing)
 
 - ⚡ Fun fact **Love to watch mystery movies**
 
